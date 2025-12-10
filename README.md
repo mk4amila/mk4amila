@@ -1,16 +1,12 @@
-## Hi there 👋
+## SEJAM BEM-VINDOS AO GIT MAIS DIVO👋
 
 <!--
-**mk4amila/mk4amila** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+**mk4amila/mk4amila** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.-->
+- ✨Não tem como falar sobre mim e não citar o centro da minha vida:JESUS💗!!!
+- ✏️Estudante do 2/3 do EM 🎒📚 
+- 🎓Futura psicologa.🌸 
+- 🤔Desensolvendo de sistemas em formação
+- 💬Transformando código em soluções... ❓
+- 🏃Sou apaixonada por corrida e por outros exercícios físicos que me fazem sentir viva 💘
+- 
+- 💞MEUS DIVOS,APROVEITEM MUITO O GIT MAIS MAIS DO MUNDO TODINHO💫 
