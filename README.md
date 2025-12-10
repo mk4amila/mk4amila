@@ -8,5 +8,4 @@
 - 🤔Desensolvendo de sistemas em formação
 - 💬Transformando código em soluções... ❓
 - 🏃Sou apaixonada por corrida e por outros exercícios físicos que me fazem sentir viva 💘
-- 
 - 💞MEUS DIVOS,APROVEITEM MUITO O GIT MAIS MAIS DO MUNDO TODINHO💫 
