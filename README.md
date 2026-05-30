@@ -3,7 +3,7 @@
 <!--
 **mk4amila/mk4amila** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.-->
 - ✨Não tem como falar sobre mim e não citar o centro da minha vida:JESUS💗!!!
-- ✏️Estudante do 2/3 do EM 🎒📚 
+- ✏️Estudante do 3/3 do EM 🎒📚 
 - 🎓Futura psicologa.🌸 
 - 🤔Desensolvendo de sistemas em formação
 - 💬Transformando código em soluções... ❓
